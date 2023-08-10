@@ -13,6 +13,8 @@ https://yelai.in
 
 请放心用，网站无毒，或切换其他最新绿色域名即可，切换浏览器也会消除警告。
 
+也可以发邮件索取最新网址:yihuagongnet@gmail.com
+
 ```
 https://yelai.mom
 
